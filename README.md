@@ -1,0 +1,2 @@
+# Curiosity
+Practicing my curiosity 
